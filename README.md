@@ -1,6 +1,6 @@
 - 👋 Gustavo messias soares mich ...
 - 👀 Estou interessado em Agronomia
-- 😄 Pronomes Elu-Delu
+- 😄 Pronomes Ele-dele
   
 
 <!---
